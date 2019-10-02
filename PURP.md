@@ -30,7 +30,7 @@ Ninguém nos calará na defesa intransigente dos princípios de equidade, se est
 
 * Acabar de vez, com subsídios de presença/assiduidade na AR dos Deputados. Uma vergonha, porque, que se saiba, os colaboradores das Empresas Privadas, e até os restantes funcionários públicos na generalidade, não usufruem dessa regalia e, mesmo que a tivessem, não são dinheiros públicos???
 
-* Acabar de vez, com a vergonha dos subsídios de deslocação dos Deputados, tendo em conta, que na sua maioria, os funcionários públicos não têm direito a esses suplementos, para não falar dos trabalhadores privados. Exige-se equidade. 
+* Acabar de vez, com a vergonha dos subsídios de deslocação dos Deputados, tendo em conta, que na sua maioria, os funcionários públicos não têm direito a esses suplementos, para não falar dos trabalhadores privados. Exige-se equidade.
 
 * Acabar de vez, com os 230 Deputados e reduzi-los para 180 numa primeira fase e, posteriormente para 150. Somos um País de 10 milhões de Cidadãos, onde comparativamente com outros Países, cujas populações são 3/4 vezes superiores, integram em proporção muitos menos Deputados (somos ricos, não é’).
 
@@ -206,8 +206,8 @@ Também neste capítulo que, que as Empresas que geram recursos (lucros) no Paí
 
 * Que os sócios gerentes das Empresas, depois de provado, que ao longo da suas respectivas gestões, descapitalizaram as Empresas, por dolo e gestão ruinosa, e venham a apresentar insolvência, respondam com os seus bens pessoais, por forma que os seus colaboradores sejam ressarcidos, do esforço e dedicação que deram às Empresas, e que não podem ser penalizados por esses actos.
 
-# CAROS CIDADÃOS/AS O PURP- APRESENTA-VOS ESTES PROGRAMAS ELEITORAIS, CONVICTOS QUE, VÃO DE ENCONTRO AOS VOSSOS PENSAMENTOS, COM VERDADE, E SÓ, VERDADE, NAQUILO QUE ALMEJAMOS PARA TODOS NÓS.
+## CAROS CIDADÃOS/AS O PURP- APRESENTA-VOS ESTES PROGRAMAS ELEITORAIS, CONVICTOS QUE, VÃO DE ENCONTRO AOS VOSSOS PENSAMENTOS, COM VERDADE, E SÓ, VERDADE, NAQUILO QUE ALMEJAMOS PARA TODOS NÓS.
 
-# POR UM PAÍS MAIS EQUITATIVO E SOLIDÁRIO.
+## POR UM PAÍS MAIS EQUITATIVO E SOLIDÁRIO.
 
-# TUDO FAREMOS, PARA NÃO VOS DESILUDIR!!!
+## TUDO FAREMOS, PARA NÃO VOS DESILUDIR!!!
